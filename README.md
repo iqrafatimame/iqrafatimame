@@ -1,7 +1,7 @@
 ### Hey! I'm Iqra 😀
+- 😁 Current [Developer Student Clubs](https://dsc.community.dev/university-of-engineering-and-technology-lahore/) Lead at UET chapter 2020 - 2021
 - 💻 A Computer Science Student
 - 👩‍ React and Flutter developer
-- 😁 Current [Developer Student Clubs](https://dsc.community.dev/university-of-engineering-and-technology-lahore/) Lead at UET chapter 2020 - 2021
 - 📝 Reading, Journalling and Learning about different Lifestyle
 - 💹 Graphic Designer 
 - 📷 Photographer
